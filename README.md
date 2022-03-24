@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @Anuragdev007
+- 👋 Hi, I’m Anurag
 
